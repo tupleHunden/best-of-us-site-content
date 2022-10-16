@@ -1,0 +1,12 @@
+Note: This is an archived post from J McClain on the legacy Best of Us website available at https://bestofuscommunity.wordpress.com/2015/03/22/this-is-my-everyday/
+
+I start each morning with some quiet time looking through news and  catching up on what’s happening. This morning when I logged onto my  Facebook to check the various Veterans groups I am a member of and see  what’s new with the guys I was met with this post.
+
+Calling all Blue Spaders! A fellow  brother is in need of some support and guidance. Show our brother some  love in his time of need. All of our paths are different after war, but  we don’t have to walk it alone. No matter how dark the road gets your  brother has a chem light! I love you brother!
+(to clear up what you might be wondering about , a Blue Spader or  simply Spader is a member of the 26th Infantry Regiment “The Blue  Spaders”)
+
+What followed was the original poster putting up information about a  member of the group who was having a difficult time and had shown some  signs of potentially thinking about suicide, which was then preceded by  approximately 100 further posts from other members of the group sharing  information about where he lives what his phone number was and seeing  who was in the immediate area who could go help as well as status  updates from the original poster who had called the local police  department to do a health and safety check and track him down. The end  result was the former Spader was found by the local police and escorted  home to sober up after they were as sure as they could be he wasn’t  immediately at risk of committing suicide.
+
+For some people they may deal with a particular instance of drama or  emergency  playing out similar to this once in a very great while. For  myself and a lot of Veterans out there who are members of Veterans  communities this isn’t uncommon at all. In fact I don’t think more than a  couple days goes by without a situation like this playing out inside  one of the groups I am a part of. For me this is my everyday. Every time  I log in to Facebook I have a brief moment of pause as the page loads  where I live out an infinite string of possibilities that I hope not to  see in my alerts.
+
+Tomorrow morning I will take my cup of coffee and sit down in front  of the screen again and wait for that inevitable moment of fear as I  load up the pages of these groups. For me this is my everyday.
